@@ -1,5 +1,5 @@
-<h1><span style="color: #2ECC71;">🍀♡!-Some infos! free to read-! ` ▫ 🍎</span></h1>
-<h3><span style="color: #2ECC71;">ッManual-`</span></h3>
+<h1><span style="color: #2ECC71;">🍀♡!𝑠𝑜𝑚𝑒 i𝑛𝑓𝑜𝑠! fr𝑒e 𝑡o 𝑟𝑒𝑎𝑑-! ` ▫ 🍎</span></h1>
+<h3><span style="color: #2ECC71;">ッMa𝑛𝑢𝑎𝑙-`</span></h3>
 
 <p align="center">
   <img src="https://tumblr.com" alt="Green Pixel Curtains" width="300">
