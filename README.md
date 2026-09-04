@@ -11,7 +11,12 @@
 
 Info ab𝑜ut 𝑚𝑒`} (⁠≧⁠▽⁠≦⁠) 🐛🍓 !!
 
-𝐼'𝑚 aroa𝑐e, 𝑎𝑛𝑑 a𝑙so 𝑖 ℎ𝑎𝑣𝑒 per𝑓ectsi𝑠m,cata𝑔eloph𝑜bia,𝑝𝑙𝑒𝑎𝑠𝑒 resp𝑒ct/𝑘ind 𝑡𝑜 me and ano𝑡ℎ𝑒𝑟𝑠! 
+𝐼'𝑚 aroa𝑐𝑒 & 𝑡𝑟𝑎𝑛𝑠𝑔𝑒𝑛𝑑𝑒𝑟! / 𝑛𝑜𝑛-𝑏𝑖𝑛𝑎𝑟𝑦- & 𝑏𝑜𝑦═ , 𝑎𝑛𝑑 a𝑙so 𝑖 ℎ𝑎𝑣𝑒 per𝑓ectsi𝑠m,cata𝑔eloph𝑜bia,𝑝𝑙𝑒𝑎𝑠𝑒 resp𝑒ct/𝑘ind 𝑡𝑜 me and ano𝑡ℎ𝑒𝑟𝑠! 
 
 
-tha𝑛ks f𝑜r Re𝑎ding! ⁠♡ 🐛 
+𝑡ℎ𝑎𝑛𝑘𝑠 𝑓𝑜𝑟 𝑟𝑒𝑎𝑑𝑖𝑛𝑔! 🐾 ` - °
+　 ∧、＿∧
+`Σ(;゜┌┐゜) - 🐛
+　/ し└┘J
+　 し——J
+
