@@ -1,9 +1,7 @@
 <h1><span style="color: #2ECC71;">🍀♡!𝑠𝑜𝑚𝑒 i𝑛𝑓𝑜𝑠! fr𝑒e 𝑡o 𝑟𝑒𝑎𝑑-! ` ▫ 🍎</span></h1>
 <h3><span style="color: #2ECC71;">ッMa𝑛𝑢𝑎𝑙-`</span></h3>
 
-<p align="center">
-  <img src="https://tumblr.com" alt="Green Pixel Curtains" width="300">
-</p>
+𝐼'𝑙𝑙 𝑚𝑎𝑘𝑒 𝑚𝑦 𝑠𝑡𝑟𝑎𝑤 𝑝𝑎𝑔𝑒  𝑣𝑒𝑟𝑦 𝑠𝑜𝑜𝑛! 𖥔
 
 - Dni- ← 
 
@@ -16,4 +14,4 @@ Info ab𝑜ut 𝑚𝑒`} (⁠≧⁠▽⁠≦⁠) 🐛🍓 !!
 𝐼'𝑚 aroa𝑐e, 𝑎𝑛𝑑 a𝑙so 𝑖 ℎ𝑎𝑣𝑒 per𝑓ectsi𝑠m,cata𝑔eloph𝑜bia,𝑝𝑙𝑒𝑎𝑠𝑒 resp𝑒ct/𝑘ind 𝑡𝑜 me and ano𝑡ℎ𝑒𝑟𝑠! 
 
 
-tha𝑛ks f𝑜r Re𝑎ding! ⁠♡ 🐛🐾
+tha𝑛ks f𝑜r Re𝑎ding! ⁠♡ 🐛 
