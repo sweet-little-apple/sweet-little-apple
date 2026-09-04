@@ -7,13 +7,13 @@
 
 - Dni- ← 
 
-Racist, dark/pro shippers, Passive-Aggressive People: If you use heavy sarcasm, condescending tones, or mock typos/grammar. `, highly Toxicity. ` 
+𝑅𝑎𝑐𝑖𝑠𝑡, dark/pro sh𝑖ppe𝑟s, Pa𝑠si𝑣e-Ag𝑔res𝑠ive Pe𝑜𝑝𝑙𝑒: If y𝑜u u𝑠e hea𝑣y sar𝑐asm, cond𝑒sc𝑒n𝑑ing to𝑛es, or mo𝑐k typ𝑜s/gr𝑎mm𝑎r. `, hi𝑔hly To𝑥𝑖𝑐𝑖𝑡𝑦. ` 
 
-(( please read my boundaries! ` || ` (⁠ノ⁠｀⁠Д⁠´⁠) 🐾-
+(( plea𝑠e re𝑎d 𝑚𝑦 bou𝑛da𝑟i𝑠s! ` || ` (⁠ノ⁠｀⁠Д⁠´⁠) 🐾-
 
-Info about me`} (⁠≧⁠▽⁠≦⁠) 🐛🍓 !!
+Info ab𝑜ut 𝑚𝑒`} (⁠≧⁠▽⁠≦⁠) 🐛🍓 !!
 
-I'm aroace, and also I have perfectsism,catagelophobia,please respect/kind to me and anothers! 
+𝐼'𝑚 aroa𝑐e, 𝑎𝑛𝑑 a𝑙so 𝑖 ℎ𝑎𝑣𝑒 per𝑓ectsi𝑠m,cata𝑔eloph𝑜bia,𝑝𝑙𝑒𝑎𝑠𝑒 resp𝑒ct/𝑘ind 𝑡𝑜 me and ano𝑡ℎ𝑒𝑟𝑠! 
 
 
-thanks for Reading! ⁠♡ 🐛🐾
+tha𝑛ks f𝑜r Re𝑎ding! ⁠♡ 🐛🐾
