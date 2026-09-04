@@ -5,7 +5,7 @@
 
 - Dni- ← 
 
-, dark/pro sh𝑖ppe𝑟s, Pa𝑠si𝑣e-Ag𝑔res𝑠ive Pe𝑜𝑝𝑙𝑒: If y𝑜u u𝑠e hea𝑣y sar𝑐asm, cond𝑒sc𝑒n𝑑ing to𝑛es, or mo𝑐k typ𝑜s/gr𝑎mm𝑎r. `, hi𝑔hly To𝑥𝑖𝑐𝑖𝑡𝑦. ` 
+, 𝑑𝑎𝑟𝑘/pro sh𝑖𝑝𝑝𝑒𝑟s, Pa𝑠si𝑣e-Ag𝑔res𝑠ive Pe𝑜𝑝𝑙𝑒: If y𝑜u u𝑠e hea𝑣y sar𝑐asm, cond𝑒sc𝑒n𝑑ing to𝑛es, or mo𝑐k typ𝑜s/gr𝑎mm𝑎r. `, hi𝑔hly To𝑥𝑖𝑐𝑖𝑡𝑦. ` 
 
 (( plea𝑠e re𝑎d 𝑚𝑦 bou𝑛da𝑟i𝑠s! ` || ` (⁠ノ⁠｀⁠Д⁠´⁠) 🐾-
 
