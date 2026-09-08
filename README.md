@@ -1,20 +1,15 @@
 <p align="center"><img src="squirm dandys world.jpeg" width="250"></p>
 
-
-
-
-
 $\color{#E9F378}\textsf{🐾\ ♡some\ infos\ free\ to\ read-\ `\ ¤\ 🐛}$
-
 
 🐛🍎,
 
 $\color{#5CE1E6}\textsf{ッManual-`}$
 
-$\color{#7FE3C0}\textsf{,\✦\ I\ changed\ my\ git\ a\ bit-}$
+$\color{#7FE3C0}\textsf{,✦\ I\ changed\ my\ git\ a\ bit-}$
 $\color{#7FE3C0}\textsf{also\ I'm\ remaking\ my\ ahh\ sp\ gosh}$
 
-$\color{#FFB3B6}\textsf{•\ Dni-\ \leftarrow\ ,\ !}$
+$\color{#FFB3B6}\textsf{•\ Dni-\ <-\ !}$
 
 $\color{#E9F378}\textsf{,dark/pro\ shippers,}$
 $\color{#E9F378}\textsf{Passive-Aggressive\ People:}$
@@ -31,8 +26,8 @@ $\color{#7FE3C0}\textsf{)-}\ \text{🐛🌿}$
 
 $\color{#E9F378}\textsf{Info\ about\ me`\}\ (\geqq\nabla\leqq)\ ,!}$
 
-$\color{#5CE1E6}\textsf{I'm\ aroace\ \&\ trans\ /}$
-$\color{#5CE1E6}\textsf{non-binary\ \&\ boy=,}$
+$\color{#5CE1E6}\textsf{I'm\ aroace\ and\ trans\ /}$
+$\color{#5CE1E6}\textsf{non-binary\ and\ boy=,}$
 $\color{#7FE3C0}\textsf{and\ also\ i\ have\ perfectsism,}$
 $\color{#7FE3C0}\textsf{catagelophobia,please\ respect/}$
 $\color{#E9F378}\textsf{kind\ to\ me\ and\ anothers,}$
@@ -41,3 +36,7 @@ $\color{#E9F378}\textsf{my\ beloved\ fandoms\ -\ ♡\ ☼🌻}$
 
 $\color{#FFB3B6}\textsf{thanks\ for\ reading!\ -\ ゜}$
 $(\ \text{\small \wedge\_\wedge\ \Sigma(;\text{\textdegree}\ \sqcap\ \text{\textdegree})\ /\ \sqcup\ \sqcup\ \rfloor\ \ \ \sqcup--\rfloor}\ )$
+
+
+
+
