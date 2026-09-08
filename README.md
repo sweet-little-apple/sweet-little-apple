@@ -1,21 +1,43 @@
-<h1><span style="color: #2ECC71;">♡𝑠𝑜𝑚𝑒 i𝑛𝑓𝑜𝑠 fr𝑒e 𝑡o 𝑟𝑒𝑎𝑑- ` ▫ </span></h1> 🐛🍎,`
-<h3><span style="color: #2ECC71;">ッMa𝑛𝑢𝑎𝑙-`</span></h3>  
-, 𖥔 𝐼 𝑐ℎ𝑎𝑛𝑔𝑒𝑑 𝑚𝑦 𝑔𝑖𝑡 𝑎 𝑏𝑖𝑡- 𝑎𝑙𝑠𝑜 𝐼'𝑚 𝑟𝑒𝑚𝑎𝑘𝑖𝑛𝑔 𝑚𝑦 𝑎ℎℎ 𝑠𝑝 𝑔𝑜𝑠ℎ
-
-- Dni- ← ,!
-
-, 𝑑𝑎𝑟𝑘/pro sh𝑖𝑝𝑝𝑒𝑟s, Pa𝑠si𝑣e-Ag𝑔res𝑠ive Pe𝑜𝑝𝑙𝑒: If y𝑜u u𝑠e hea𝑣y sar𝑐asm, cond𝑒sc𝑒n𝑑ing to𝑛es, or mo𝑐k typ𝑜s/gr𝑎mm𝑎r. `, hi𝑔hly To𝑥𝑖𝑐𝑖𝑡𝑦. ` 𝑔𝑟𝑜𝑜𝑚𝑒𝑟𝑠, 𝑤𝑒𝑖𝑟𝑑𝑜𝑠, ℎ𝑜𝑚𝑜𝑝ℎ𝑜𝑏𝑖𝑐 ` ଓ 🍎🐾,
-
-(( plea𝑠e re𝑎d 𝑚𝑦 bou𝑛da𝑟i𝑠s ` || ` (⁠ノ⁠｀⁠Д⁠´⁠) -🐛🌿
-
-Info ab𝑜ut 𝑚𝑒`} (⁠≧⁠▽⁠≦⁠) ,!
-
-𝐼'𝑚 aroa𝑐𝑒 & 𝑡𝑟𝑎𝑛𝑠𝑔𝑒𝑛𝑑𝑒𝑟 / 𝑛𝑜𝑛-𝑏𝑖𝑛𝑎𝑟𝑦- & 𝑏𝑜𝑦═ , 𝑎𝑛𝑑 a𝑙so 𝑖 ℎ𝑎𝑣𝑒 per𝑓ectsi𝑠m,cata𝑔eloph𝑜bia,𝑝𝑙𝑒𝑎𝑠𝑒 resp𝑒ct/𝑘ind 𝑡𝑜 me and ano𝑡ℎ𝑒𝑟𝑠,  𝑎𝑛𝑑 𝑦𝑒𝑠 𝐼 𝑑𝑜 𝑐𝑜𝑠𝑝𝑙𝑎𝑦 𝑜𝑛𝑒 𝑜𝑓 𝑚𝑦 𝑏𝑒𝑙𝑜𝑣𝑒𝑑 𝑓𝑎𝑛𝑑𝑜𝑚𝑠 -  ෆ 🔆🌻
+<p align="center"><img src="Squirm_Render.png" width="220"></p>
 
 
-𝑡ℎ𝑎𝑛𝑘𝑠 𝑓𝑜𝑟 𝑟𝑒𝑎𝑑𝑖𝑛𝑔!  ` - °
-　 ∧、＿∧
-`Σ(;゜┌┐゜) 
-　/ し└┘J
-　 し——J
 
+
+
+$\color{#E9F378}\textsf{🐾\ ♡some\ infos\ free\ to\ read-\ `\ ¤\ 🐛}$
+
+
+🐛🍎,
+
+$\color{#5CE1E6}\textsf{ッManual-`}$
+
+$\color{#7FE3C0}\textsf{,\✦\ I\ changed\ my\ git\ a\ bit-}$
+$\color{#7FE3C0}\textsf{also\ I'm\ remaking\ my\ ahh\ sp\ gosh}$
+
+$\color{#FFB3B6}\textsf{•\ Dni-\ \leftarrow\ ,\ !}$
+
+$\color{#E9F378}\textsf{,dark/pro\ shippers,}$
+$\color{#E9F378}\textsf{Passive-Aggressive\ People:}$
+$\color{#5CE1E6}\textsf{If\ you\ use\ heavy\ sarcasm,}$
+$\color{#7FE3C0}\textsf{condescending\ tones,}$
+$\color{#7FE3C0}\textsf{or\ mock\ typos/grammar.}$
+$\color{#FFB3B6}\textsf{,\ highly\ Toxicity.}$
+$\color{#5CE1E6}\textsf{groomers,\ weirdos,}$
+$\color{#5CE1E6}\textsf{homophobic\ `\ ⚙\ 🍎🐾,}$
+
+$\color{#7FE3C0}\textsf{((\ Free\ to\ read\ my\ boundariss\ ||}$
+$(\ \text{\small ﾉ\ ﾟ\ Д\ ﾟ}\ )$
+$\color{#7FE3C0}\textsf{)-}\ \text{🐛🌿}$
+
+$\color{#E9F378}\textsf{Info\ about\ me`\}\ (\geqq\nabla\leqq)\ ,!}$
+
+$\color{#5CE1E6}\textsf{I'm\ aroace\ \&\ trans\ /}$
+$\color{#5CE1E6}\textsf{non-binary\ \&\ boy=,}$
+$\color{#7FE3C0}\textsf{and\ also\ i\ have\ perfectsism,}$
+$\color{#7FE3C0}\textsf{catagelophobia,please\ respect/}$
+$\color{#E9F378}\textsf{kind\ to\ me\ and\ anothers,}$
+$\color{#E9F378}\textsf{and\ yes\ I\ do\ cosplay\ one\ of}$
+$\color{#E9F378}\textsf{my\ beloved\ fandoms\ -\ ♡\ ☼🌻}$
+
+$\color{#FFB3B6}\textsf{thanks\ for\ reading!\ -\ ゜}$
+$(\ \text{\small \wedge\_\wedge\ \Sigma(;\text{\textdegree}\ \sqcap\ \text{\textdegree})\ /\ \sqcup\ \sqcup\ \rfloor\ \ \ \sqcup--\rfloor}\ )$
