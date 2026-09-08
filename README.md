@@ -1,4 +1,4 @@
-<p align="center"><img src="Squirm_Render.png" width="220"></p>
+<p align="center"><img src="squirm dandys world.jpeg" width="250"></p>
 
 
 
