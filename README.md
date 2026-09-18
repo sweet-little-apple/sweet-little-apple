@@ -7,7 +7,7 @@ $\color{#E9F378}\textsf{\ ♡𝑠𝑜𝑚𝑒\ in𝑓os\ fr𝑒e\ to\ 𝑟𝑒ad
 $\color{#5CE1E6}\textsf{ッMa𝑛u𝑎l-`}$
 
 $\color{#7FE3C0}\textsf{,✦\ I\ ch𝑎n𝑔ed\ my\ g𝑖t\ a\ b𝑖t-}$
-$\color{#7FE3C0}\textsf{also\ I'm\ rem𝑎𝑘𝑖𝑛𝑔\ 𝑚y\ 𝑎ℎℎ\ 𝑠𝑝\ g𝑜sh}$
+$\color{#7FE3C0}\textsf{also\ I'm\ m𝑎𝑘𝑖𝑛𝑔\ 𝑚y\ \ ata \ g𝑜sh}$
 
 $\color{#FFB3B6}\textsf{•\ 𝑑ni-\ <-\ !}$
 
