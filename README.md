@@ -1,6 +1,6 @@
 <!-- THE VERY TOP BANNER -->
 <p align="center">
-  <img src="banner.jpg" alt="Squirm Banner" width="100%">
+  <img src="56b42b29-4e56-4e63-a1f4-f660328cad3a.jpeg" alt="Squirm Banner" width="100%">
 </p>
 
 <br>
