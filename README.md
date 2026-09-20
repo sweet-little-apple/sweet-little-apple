@@ -1,11 +1,9 @@
-<!-- THE VERY TOP BANNER -->
 <p align="center">
-  <img src="56b42b29-4e56-4e63-a1f4-f660328cad3a.jpeg" alt="Squirm Banner" width="100%">
+  <img src="squirm skin easter skin.jpg" alt="Squirm Banner" width="100%">
 </p>
 
 <br>
 
-<!-- DNI LIST SECTION -->
 <div align="center">
   <h3>🛑 dni list : 🛑</h3>
 
@@ -19,7 +17,6 @@
 
 <br>
 
-<!-- BOUNDARIES SECTION -->
 <div align="center">
   <h2>💮 boundaries ! 💮</h2>
   <p><i>only if put in the name ` °</i></p>
@@ -42,3 +39,8 @@
 <p align="center">
   thanks for reading these boundaries! 💮 ♡⁠(⁠>⁠ ⁠ਊ⁠ ⁠<⁠)⁠♡
 </p>
+
+
+
+
+
