@@ -1,41 +1,39 @@
-<p align="center">
-  <img src="https://ibb.co" alt="Squirm Easter Banner" width="100%">
-</p>
+<div align="center">
+
+${\color{#FFB3B6} 🐛 \text{ } DNI \text{ } LIST \text{ } : \text{ } 🍡}$
 
 <br>
 
-<div align="center">
-  <h3>🛑 dni list : 🛑</h3>
+${\color{#6FF5B8} dark/pro \text{ } shipper}$
+${\color{#EEF375} ,}$
+${\color{#FFB3B6} passive \text{ } aggressive \text{ } people}$
+${\color{#EEF375} ,}$
+${\color{#69F5B5} basic \text{ } criteria}$
 
-  ${\color{#6FF5B8} dark/pro \text{ } shipper}$
-  ${\color{#EEF375} ,}$
-  ${\color{#FFB3B6} passive \text{ } aggressive \text{ } people}$
-  ${\color{#EEF375} ,}$
-  ${\color{#69F5B5} basic \text{ } criteria}$
+<br>
+<br>
 
-</div>
+${\color{#FFB3B6} 💮 \text{ } BOUNDARIES \text{ } ! \text{ } 💮}$
+
+${\color{#69F5B5} \textit{only if put in the name ` °}}$
 
 <br>
 
-<div align="center">
-  <h2>💮 boundaries ! 💮</h2>
-  <p><i>only if put in the name ` °</i></p>
-</div>
+${\color{#6FF5B8} dniuid}$
+${\color{#EEF375} ,}$
+${\color{#69F5B5} iwc}$
+${\color{#EEF375} ,}$
+${\color{#FFB3B6} do \text{ } not \text{ } c+h \text{ } when \text{ } uncomfortable}$
+${\color{#EEF375} ,}$
+${\color{#6FF5B8} do \text{ } not \text{ } force \text{ } anything}$
 
-<div align="center">
+<br>
+<br>
 
-  ${\color{#6FF5B8} dniuid}$
-  ${\color{#EEF375} ,}$
-  ${\color{#69F5B5} iwc}$
-  ${\color{#EEF375} ,}$
-  ${\color{#FFB3B6} do \text{ } not \text{ } c+h \text{ } when \text{ } uncomfortable}$
-  ${\color{#EEF375} ,}$
-  ${\color{#6FF5B8} do \text{ } not \text{ } force \text{ } anything}$
-
-</div>
+${\color{#FFB3B6} thanks \text{ } for \text{ } reading \text{ } these \text{ } boundaries! \text{ } 💮}$
 
 <br>
 
-<p align="center">
-  thanks for reading these boundaries! 💮 ♡⁠(⁠>⁠ ⁠ਊ⁠ ⁠<⁠)⁠♡
-</p>
+♡⁠(⁠>⁠ ⁠ਊ⁠ ⁠<⁠)⁠♡
+
+</div>
