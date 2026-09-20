@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="squirm skin easter skin.jpg" alt="Squirm Banner" width="100%">
+  <img src="8da5c1d0-c704-4c59-ac40-efca36fd6bb8.jpeg" alt="Squirm Banner" width="100%">
 </p>
 
 <br>
@@ -39,7 +39,6 @@
 <p align="center">
   thanks for reading these boundaries! 💮 ♡⁠(⁠>⁠ ⁠ਊ⁠ ⁠<⁠)⁠♡
 </p>
-
 
 
 
