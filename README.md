@@ -1,9 +1,8 @@
 <p align="center">
-  <img src="8da5c1d0-c704-4c59-ac40-efca36fd6bb8.jpg" alt="Squirm Banner" width="100%">
+  <img src="https://ibb.co" alt="Squirm Easter Banner" width="100%">
 </p>
 
-
-
+<br>
 
 <div align="center">
   <h3>🛑 dni list : 🛑</h3>
@@ -40,7 +39,6 @@
 <p align="center">
   thanks for reading these boundaries! 💮 ♡⁠(⁠>⁠ ⁠ਊ⁠ ⁠<⁠)⁠♡
 </p>
-
 
 
 
