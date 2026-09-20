@@ -39,6 +39,3 @@
 <p align="center">
   thanks for reading these boundaries! 💮 ♡⁠(⁠>⁠ ⁠ਊ⁠ ⁠<⁠)⁠♡
 </p>
-
-
-
