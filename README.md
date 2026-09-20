@@ -3,11 +3,6 @@
   <img src="banner.jpg" alt="Squirm Banner" width="100%">
 </p>
 
-<!-- CUSTOM SQUIRM BOOK TRACKER BUTTON -->
-<p align="center">
-  <img src="https://shields.io📚%20Books%20eaten-324-6FF5B8?style=for-the-badge&labelColor=FFB3B6&logoColor=white" alt="Books Eaten Count"/>
-</p>
-
 <br>
 
 <!-- DNI LIST SECTION -->
@@ -47,4 +42,3 @@
 <p align="center">
   thanks for reading these boundaries! 💮 ♡⁠(⁠>⁠ ⁠ਊ⁠ ⁠<⁠)⁠♡
 </p>
-
