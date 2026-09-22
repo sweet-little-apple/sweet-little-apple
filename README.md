@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="squirm.leaf.jpeg" width="450" style="border-radius: 15px;" alt="Squirm Green Header">
+<img src="squirm.banner.jpeg" width="450" style="border-radius: 15px;" alt="Squirm cute banner">
 
 <br/><br/>
 
@@ -8,7 +8,7 @@
 
 <br/><br/>
 
-### 🟢 **FYI: IMAGES NOT MINE! took me 2 hours - Still making sp, ata!**
+### 🟢 **FYI: IMAGES NOT MINE! took me 5 hours - Still making sp, ata!**
 
 <br/><br/>
 
@@ -75,3 +75,4 @@
 🌱 `if u wanna bmf please ask nicely on whisper ! thanks for Reading`
 
 </div>
+
