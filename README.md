@@ -8,7 +8,7 @@
 
 <br/><br/>
 
-### 🟢 **FYI: IMAGES NOT MINE! took me 5 hours - Still making sp, ata!**
+### 🟢 **FYI: IMAGES NOT MINE! took me 4 hours - Still making sp, ata!**
 
 <br/><br/>
 
@@ -17,7 +17,7 @@
 <br/><br/>
 
 <img src="squirm.pink.jpeg" width="450" style="border-radius: 15px;" alt="Squirm Pink Easter Banner">
-
+𝑏𝑦 :  @𝐾𝑎𝑠ℎ𝑎𝑚𝑖𝑒
 <br/><br/>
 
 ---
