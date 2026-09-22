@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="squirm.green.jpeg" width="450" style="border-radius: 15px;" alt="Squirm Green Header">
+<img src="squirm.leaf" width="450" style="border-radius: 15px;" alt="Squirm Green Header">
 
 <br/><br/>
 
@@ -67,12 +67,12 @@
 <img src="sweet.png.jpeg" width="280" alt="Sweet Graphic Element">
 
 <br/><br/>
-🌱 `if u wanna bmf please ask nicely on whisper ! thanks for Reading PLEASE SAY IF YOU SEE THIS ! thank you
-
-</div>
 
 <img src="collage.png.jpeg" width="350" style="border-radius: 15px;" alt="Collage Art Block">
 
 <br/><br/>
 
+🌱 `if u wanna bmf please ask nicely on whisper ! thanks for Reading`
+
+</div>
 
