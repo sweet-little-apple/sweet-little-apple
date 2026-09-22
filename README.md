@@ -1,7 +1,7 @@
 <div align="center">
 
 <img src="squirm.banner.jpeg" width="450" style="border-radius: 15px;" alt="Squirm cute banner">
-
+ by :  @Kashamie
 <br/><br/>
 
 <img src="buttons.png.jpeg" width="240" alt="Buttons Layout Element">
@@ -33,7 +33,7 @@
 <br/><br/>
 
 <img src="cloud.png.jpeg" width="320" style="border-radius: 15px;" alt="Cloud Layout Element">
-
+by : Smiski
 <br/><br/>
 
 <img src="leaf.png.jpg" width="320" style="border-radius: 15px;" alt="Leaf Accent Frame">
@@ -41,7 +41,7 @@
 <br/><br/>
 
 <img src="smiski.png.jpeg" width="320" style="border-radius: 15px;" alt="Smiski Main Layout Element">
-
+by : Smiski
 <br/><br/>
 
 <details>
@@ -72,7 +72,7 @@
 
 <br/><br/>
 
-🌱 `if u wanna bmf please ask nicely on whisper ! thanks for Reading`
+🌱 `if u wanna bmf please ask nicely on whisper ! thanks for Reading` and idk who's creator for the ones who I didn't cred
 
 </div>
 
