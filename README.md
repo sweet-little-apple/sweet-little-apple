@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="squirm.leaf" width="450" style="border-radius: 15px;" alt="Squirm Green Header">
+<img src="squirm.leaf.jpeg" width="450" style="border-radius: 15px;" alt="Squirm Green Header">
 
 <br/><br/>
 
@@ -75,4 +75,3 @@
 🌱 `if u wanna bmf please ask nicely on whisper ! thanks for Reading`
 
 </div>
-
