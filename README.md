@@ -1,8 +1,6 @@
 <div align="center">
 
-<img src="squirm.banner.jpeg" width="450" style="border-radius: 15px;" alt="Squirm cute banner">
- by :  @Kashamie
-<br/><br/>
+
 
 <img src="buttons.png.jpeg" width="240" alt="Buttons Layout Element">
 
@@ -68,11 +66,11 @@ by : Smiski
 
 <br/><br/>
 
-<img src="collage.png.jpeg" width="350" style="border-radius: 15px;" alt="Collage Art Block">
+
 
 <br/><br/>
 
-🌱 `if u wanna bmf please ask nicely on whisper ! thanks for Reading` and idk who's creator for the ones who I didn't cred
+🌱 `if u wanna bmf please ask nicely on whisper ! thanks for Reading and idk who's creator for the ones who I didn't cred `
 
 </div>
 
