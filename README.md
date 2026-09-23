@@ -2,12 +2,11 @@
 
 
 
-<img src="vines.pink.jpeg" width="240" alt="Flowery branch">
+<img src="sweet.apple.jpeg" width="240" alt="Too sweet ">
 
 <br/><br/>
 
-### 💮❕ **FYI: IMAGES NOT MINE! took me 4 hours - Still making sp, ata!**
-
+###  **FYI: IMAGES NOT MINE! took me 4 hours - Still making sp, ata!  ###
 <br/><br/>
 
 <img src="ribbon.png.jpeg" width="320" alt="Ribbon Separator">
@@ -15,7 +14,7 @@
 <br/><br/>
 
 <img src="squirm.pink.jpeg" width="450" style="border-radius: 15px;" alt="Squirm Pink Easter Banner">
-𝑏𝑦 :  @𝐾𝑎𝑠ℎ𝑎𝑚𝑖𝑒
+
 <br/><br/>
 
 ---
@@ -70,7 +69,7 @@ by : Smiski
 
 <br/><br/>
 
-🌱 `if u wanna bmf please ask nicely on whisper ! thanks for Reading and idk who's creator for the ones who I didn't cred `
+ `if u wanna bmf please ask nicely on whisper ! thanks for Reading and idk who's creator for the ones who I didn't cred and yes I don't like color pink but it kinda inspires me I loved white the most but it's colorless,, ok, I'd remove the emojis now `
 
 </div>
 
