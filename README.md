@@ -34,7 +34,7 @@
 by : Smiski
 <br/><br/>
 
-<img src="leaf.png.jpg" width="320" style="border-radius: 15px;" alt="Leaf Accent Frame">
+
 
 <br/><br/>
 
@@ -62,7 +62,7 @@ by : Smiski
 
 <br/><br/>
 
-<img src="sweet.png.jpeg" width="280" alt="Sweet Graphic Element">
+<img src="butterfly.lovely.jpeg" width="280" alt="Sweet lovely Element">
 
 <br/><br/>
 
