@@ -4,7 +4,7 @@
 
 <br/><br/>
 
-`FYI: IMAGES NOT MINE! took me 1 hour - ! aroace / 
+`FYI: IMAGES NOT MINE! I AM AROACE / `
 
 <br/><br/>
 
