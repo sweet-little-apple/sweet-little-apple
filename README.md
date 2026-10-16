@@ -60,7 +60,7 @@
 
 <br/><br/>
 
-`if u wanna bmf please ask nicely on whisper ! thanks !` 
+`if u wanna bmf please ask nicely on whisper ! thanks ! I'm not online always btw just sometimes! I follow l8 ahhh `
 
 </div>
 
