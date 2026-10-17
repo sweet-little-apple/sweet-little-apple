@@ -30,18 +30,12 @@
 ` 𝐼 𝑓𝑜𝑙𝑙𝑜𝑤 𝑙8 𝑜𝑘𝑎𝑦?? 𝐼 𝑑𝑜𝑛'𝑡 𝑟𝑒𝑎𝑙𝑙𝑦 𝑡𝑎𝑙𝑘 𝑢𝑠𝑢𝑎𝑙𝑙𝑦 𝑜𝑛 𝑝𝑢𝑏𝑙𝑖𝑐, 𝐼 𝑔𝑜𝑡 𝑠𝑜𝑐𝑖𝑎𝑙 𝑎𝑛𝑥𝑖𝑒𝑡𝑦 ||
 
  𝑑𝑜 𝑛𝑜𝑡 𝑓𝑜𝑟𝑐𝑒 𝑚𝑒 𝑖𝑛𝑡𝑜 𝑠𝑜𝑚𝑒𝑡ℎ𝑖𝑛𝑔, 𝑡ℎ𝑎𝑡 𝑤𝑖𝑙𝑙 𝑠𝑒𝑟𝑖𝑜𝑢𝑠𝑙𝑦 𝑚𝑎𝑘𝑒 𝑚𝑒 𝑚𝑎𝑑 𝑜𝑟 𝑠𝑡𝑟𝑒𝑠𝑠𝑒𝑑
+ 
 <p align="center">
-  <img src="flower.sun.jpeg" width="200" alt="Vintage Ephemera Papers">
-</p
-  
-<p align="center">
-  <img src="autumn.fall.jpeg" width="200" alt="lalala ">
-</p>
-
-<p align="center">
-  <img src="shining.candle.jpeg" width="140" alt="Shining Candle Accent">
+  <img src="flower.sun.jpeg" width="140" alt="Shining Candle Accent">
   
 </p> 
+
 
 
 
