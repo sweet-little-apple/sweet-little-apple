@@ -1,8 +1,8 @@
 <div align="center">
 
-<img src="" width="200" alt="Pixel Cloud and Stars">
 
-<img src="boarder.line" width="200" alt="Pixel Cloud and Stars">
+
+<img src="boarder.line.jpeg" width="300" alt="Pixel Cloud and Stars">
 <br/><br/>
 
  text here / 
@@ -14,11 +14,11 @@
 <br/><br/>
 
 ` text here / 
-<img src="boarder.line" width="200" alt="Pixel Cloud and Stars">
+
 
 <img src="cute.melody.jpeg" width="100%" alt="Plaid Pastel Yellow and Pink Footer">
 
-<img src="boarder.line" width="200" alt="Pixel Cloud and Stars">
+<img src="boarder.line.jpeg" width="300" alt="Pixel Cloud and Stars">
 <br/><br/>
 
 ---
@@ -33,7 +33,7 @@
 
 <br/><br/>
 
-<img src="melodyy.frame.jpg" width="200" alt="Pixel Cloud and Stars">
+<img src="" width="200" alt="Pixel Cloud and Stars">
 
 <br/><br/>
 
