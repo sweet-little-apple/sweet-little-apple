@@ -23,8 +23,7 @@
 
 ---
 
-
-    ────୨ৎ────
+    
 // aroace - non-binary )) 
     
 <br/>
@@ -33,7 +32,7 @@
 
 <br/><br/>
 
-<img src="" width="200" alt="Pixel Cloud and Stars">
+<img src="ribbon.cute.jpeg" width="200" alt="Pixel Cloud and Stars">
 
 <br/><br/>
 
