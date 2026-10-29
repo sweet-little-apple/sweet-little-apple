@@ -5,7 +5,7 @@
 <img src="boarder.line.jpeg" width="300" alt="Pixel Cloud and Stars">
 <br/><br/>
 some infos 
-• I might have multiple different skins
+• I might have some different style 
 
 • w2i - if you wanted to talk or ask 
 something to me I don't mind
@@ -68,7 +68,7 @@ I basically have perfectisim , ADHD , so please do not Judge me and the people
 
 if you wanna bmf w2i 
 
-     c+h is always allowed and encouraged 
+     c+h is always allowed and encouraged
 </div>
 
 
